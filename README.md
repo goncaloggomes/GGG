@@ -10,7 +10,7 @@ Preferred languages: Python, SQL.
 Background: Business Analytics, Digital Marketing, Marketing & Communication fields. 
 
 I have lived in Luxembourg for the past seven years, but I am currently living in Portugal. 
-I choose to travel as something I can't live without, and I'm also an avid sportsman: kitesurf, padel, and running mostly.
+I choose to travel as something I can't live without. I'm also an avid sportsman: kitesurf, padel, and running mostly.
 
 **Get connected:**
 
