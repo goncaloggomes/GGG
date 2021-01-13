@@ -17,4 +17,3 @@ I choose to travel as something I can't live without, and I'm also an avid sport
 - [Linkedin](http://bit.ly/2ybRqYT)
 - [Twitter](https://bit.ly/3gAwMTP)
 - [Medium](https://bit.ly/3gDC5Sp)
-- [Email](mailto:goncaloggomes@gmail.com)
